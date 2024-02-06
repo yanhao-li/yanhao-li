@@ -15,4 +15,7 @@ Here are some ideas to get you started:
 -->
 
 
-Hello!
+Hi 👋
+
+I'm Yanhao. 
+I take pleasure in crafting miniature creations that add a touch of happiness to the lives of others.
